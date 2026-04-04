@@ -13,7 +13,7 @@ MASTERPIECES, WORKS OF ARTS, DESERVE TO BE IN A MUSEUSM FOR FUTURE GENERATION  v
 
 what majestic art... *sobs handsomely*
 
-⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱
+⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱
 
 
 Q ;;
