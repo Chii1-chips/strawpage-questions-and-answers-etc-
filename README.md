@@ -11,6 +11,9 @@ MASTERPIECES, WORKS OF ARTS, DESERVE TO BE IN A MUSEUSM FOR FUTURE GENERATION  v
 <img width="369" height="370" alt="Screenshot 2026-04-03 11 39 50 PM" src="https://github.com/user-attachments/assets/067bc3b4-3d9a-4ce7-8fdd-4d624793284a" />
 <img width="368" height="370" alt="Screenshot 2026-04-03 11 39 54 PM" src="https://github.com/user-attachments/assets/aedb016c-811c-41e6-9411-1b574b462509" />
 
+<img width="376" height="300" alt="image" src="https://github.com/user-attachments/assets/f0181d01-9a86-41be-9d10-94466ee2012b" />
+(SO FIRE. I LOVE IT. omg... thank you ivanqwe!!!!!!. hello to you :)
+
 what majestic art... *sobs handsomely*
 
 ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱
