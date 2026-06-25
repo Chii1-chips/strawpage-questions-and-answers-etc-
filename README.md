@@ -26,6 +26,14 @@ Q ;;
 
 A ;; "cats. no questions asked."
 
+---
+
+<img width="377" height="345" alt="Screenshot 2026-06-24 11 00 47 PM" src="https://github.com/user-attachments/assets/e61735d4-71bd-45bb-86f6-90440eec13d8" />
+
+A ;; omg, ur also cool ^w^ . ty :3 . ily as well/platonic
+
+⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱
+
 # End of this page, for now! 
 
 ╚═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╝
