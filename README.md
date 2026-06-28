@@ -15,7 +15,10 @@ MASTERPIECES, WORKS OF ARTS, DESERVE TO BE IN A MUSEUSM FOR FUTURE GENERATION  v
 <img width="376" height="300" alt="image" src="https://github.com/user-attachments/assets/f0181d01-9a86-41be-9d10-94466ee2012b" />
 (SO FIRE. I LOVE IT. omg... thank you ivanqwe!!!!!!. hello to you :)
 
-what majestic art... *sobs handsomely*
+<img width="367" height="213" alt="Screenshot 2026-06-27 8 10 42 PM" src="https://github.com/user-attachments/assets/a484594f-e77b-4d6d-882b-a83d11ef54bd" />
+awww... :D.. thank you ayumii <33. i appericate u smmm <333 😸 ily/platonic
+
+what a hall of majestic art... *sobs handsomely*
 
 ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱
 
