@@ -30,6 +30,13 @@ Q ;;
 A ;; "cats. no questions asked."
 
 ---
+q or idk ;;
+
+<img width="376" height="213" alt="Screenshot 2026-08-04 10 46 18 PM" src="https://github.com/user-attachments/assets/9b95e9c8-02ef-48be-812d-8c528d47391b" />
+
+A ;; well.. I suppose that is just your opinion. but, I don't know if this was like meant to be mean or something, but I like it the way it is :)
+
+---
 
 <img width="377" height="345" alt="Screenshot 2026-06-24 11 00 47 PM" src="https://github.com/user-attachments/assets/e61735d4-71bd-45bb-86f6-90440eec13d8" />
 
