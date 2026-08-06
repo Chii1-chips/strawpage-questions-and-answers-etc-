@@ -11,12 +11,19 @@ MASTERPIECES, WORKS OF ARTS, DESERVE TO BE IN A MUSEUSM FOR FUTURE GENERATION  v
 <img width="369" height="370" alt="Screenshot 2026-04-03 11 39 44 PM" src="https://github.com/user-attachments/assets/20a9dafc-7bcc-4bcf-af55-3b193c7c7cc0" />
 <img width="369" height="370" alt="Screenshot 2026-04-03 11 39 50 PM" src="https://github.com/user-attachments/assets/067bc3b4-3d9a-4ce7-8fdd-4d624793284a" />
 <img width="368" height="370" alt="Screenshot 2026-04-03 11 39 54 PM" src="https://github.com/user-attachments/assets/aedb016c-811c-41e6-9411-1b574b462509" />
+<img width="377" height="232" alt="Screenshot 2026-08-05 6 26 47 PM" src="https://github.com/user-attachments/assets/dc80815c-0887-4e0e-bc2d-cc0867c0e9d1" />
+
+---
 
 <img width="376" height="300" alt="image" src="https://github.com/user-attachments/assets/f0181d01-9a86-41be-9d10-94466ee2012b" />
 (SO FIRE. I LOVE IT. omg... thank you ivanqwe!!!!!!. hello to you :)
 
+---
 <img width="367" height="213" alt="Screenshot 2026-06-27 8 10 42 PM" src="https://github.com/user-attachments/assets/a484594f-e77b-4d6d-882b-a83d11ef54bd" />
+
 awww... :D.. thank you ayumii <33. i appericate u smmm <333 😸 ily/platonic
+
+---
 
 what a hall of majestic art... *sobs handsomely*
 
