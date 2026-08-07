@@ -12,6 +12,7 @@ MASTERPIECES, WORKS OF ARTS, DESERVE TO BE IN A MUSEUSM FOR FUTURE GENERATION  v
 <img width="369" height="370" alt="Screenshot 2026-04-03 11 39 50 PM" src="https://github.com/user-attachments/assets/067bc3b4-3d9a-4ce7-8fdd-4d624793284a" />
 <img width="368" height="370" alt="Screenshot 2026-04-03 11 39 54 PM" src="https://github.com/user-attachments/assets/aedb016c-811c-41e6-9411-1b574b462509" />
 <img width="377" height="232" alt="Screenshot 2026-08-05 6 26 47 PM" src="https://github.com/user-attachments/assets/dc80815c-0887-4e0e-bc2d-cc0867c0e9d1" />
+<img width="375" height="256" alt="Screenshot 2026-08-06 10 46 12 PM" src="https://github.com/user-attachments/assets/5c0b5d4e-2d6d-45e4-a660-2f9af8b08be9" />
 
 ---
 
