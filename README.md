@@ -50,6 +50,14 @@ A ;; well.. I suppose that is just your opinion. but, I don't know if this was l
 
 A ;; omg, ur also cool ^w^ . ty :3 . ily as well/platonic
 
+---
+
+<img width="370" height="212" alt="Screenshot 2026-08-20 3 38 57 PM" src="https://github.com/user-attachments/assets/587686d7-f87e-4921-95c8-3f108e9040d9" />
+
+A ;; OMGOMGOMGOMGOGOMGMO THANYOOUTHNAKYOU STRQANGER OR FRIEND THANK YOU!!!!!!!!!!!!!!!!1
+
+---
+
 ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱
 
 # End of this page, for now! 
