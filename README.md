@@ -58,6 +58,10 @@ A ;; OMGOMGOMGOMGOGOMGMO THANYOOUTHNAKYOU STRQANGER OR FRIEND THANK YOU!!!!!!!!!
 
 ---
 
+<img width="1080" height="2424" alt="1000000960" src="https://github.com/user-attachments/assets/056afc60-d006-45c0-a58f-2ed6432ac8a8" />
+
+A ;; AW AWW WWWWW AW WAWWWW🥹🥹🥹🥹THANK THANK THANK THANK YOU YOU YOU YOU THANK💥💥
+
 ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱ ────── {.⋅ ♫ ⋅.} ───── ⊱
 
 # End of this page, for now! 
